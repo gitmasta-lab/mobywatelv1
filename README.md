@@ -14,3 +14,5 @@ Naciśji 3 kropki -> Dodaj do ekranu głównego
 
 
 Miłego chlania i jarania i dużo jebania.
+
+PS zmienic linki w kodzie jesli se go bierzecie pozdro
